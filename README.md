@@ -63,7 +63,7 @@ The work draws on sociology of knowledge, science and technology studies, and in
 ## Connect
 
 **Author:** Bryanna Mischewski  
-**LinkedIn:** [linkedin.com/in/bryannamischewski](https://linkedin.com/in/bryannamischewski)  
+**LinkedIn:** [linkedin.com/in/bryanna-mischewski-3846a927a](https://www.linkedin.com/in/bryanna-mischewski-3846a927a/)  
 **Email:** studio@havlowevepress.com  
 **ORCID:** [0000-0008-4701-7044](https://orcid.org/0000-0008-4701-7044)
 
